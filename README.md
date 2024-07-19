@@ -13,7 +13,3 @@ Here are some ideas to know me more.
 - 💬 Ask me about anything you like to know 
 - 📫 How to reach me: whatsapp +923006634785
 - ⚡ Do follow or connect me I'm open to suggestions and collaborations. 
-
-<br>
-
-Code well stay safe :)
